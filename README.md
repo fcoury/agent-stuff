@@ -1,0 +1,1 @@
+- [Ask questions if underspecified](https://x.com/thsottiaux/status/2006624682515247604)
